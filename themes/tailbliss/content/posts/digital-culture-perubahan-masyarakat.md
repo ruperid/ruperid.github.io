@@ -55,7 +55,7 @@ https://www.ojcmt.net/download/the-impact-of-new-media-on-the-forms-of-culture-d
 https://datareportal.com/reports/digital-2024-global-overview-report  
 https://backlinko.com/screen-time-statistics#average-screen-time-worldwide  
 https://www.tintasiyasi.com/2022/12/mafahim-maqayis-dan-qanaat.html  
-https://databoks.katadata.co.id/datapublish/2023/08/18/  berapa-lama-durasi-tidur-orang-indonesia-ini-hasil-surveinya#:~:text=Berdasarkan%20hasil%20survei%20Kurious%2DKatadata,tidur%20antara%202%2D4%20jam.  
-Taqiyuddin A., Hakikat Berpikir  
+https://databoks.katadata.co.id/datapublish/2023/08/18/berapa-lama-durasi-tidur-orang-indonesia-ini-hasil-surveinya#:~:text=Berdasarkan%20hasil%20survei%20Kurious%2DKatadata,tidur%20antara%202%2D4%20jam.  
+Taqiyuddin A., Hakikat Berpikir  :
 Taqiyuddin A., Peraturan Hidup dalam Islam  
 Dwi Condro, Retorika Mengguncang Dunia  
